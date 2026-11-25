@@ -1,0 +1,5 @@
+# The Ruler — TM-F001
+The Architect of Viceborough. Independent secret unlockable Black Label Founder Edition boss; classified identity. Sovereign Chamber, crowned chess king emblem, obsidian/gold/ivory. Permanent founder tribute: statue, Easter eggs, exclusive card, secret campaign encounter and recurring expansions.
+Approved likeness concept: long locs, salt-and-pepper beard, forehead tattoo, signature sunglasses, diamond l2uler pendant, burgundy velvet suit and black turtleneck. Executive, Sovereign and Strategist alternate skins. Preserve approved reference; do not publish personal source photos.
+Abilities: Royal Decree (disable opposing ability temporarily), Master Strategist (reorder next three cards), Absolute Influence (extra Influence when controlling three districts), King's Gambit (sacrifice ally to empower another), Sovereign Authority (once-per-match fatal attack prevention). All subject to competitive balance.
+Quote: While others fight for power, I determine what power is.
